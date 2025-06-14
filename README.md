@@ -1,2 +1,7 @@
-# Manual-UFO50
-A manual that gives an incentive to try out all of the games in UFO 50, for those who haven't played them all yet.
+# UFO 50 (AP Manual)
+[under construction]
+
+## What Are You Searching For?
+
+
+## Play Guide
